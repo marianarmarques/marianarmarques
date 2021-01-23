@@ -4,7 +4,7 @@ I'm becoming a **informatic software engineer** (2nd year of graduation) and sta
 
 ## Connect with me:
 
-[![](https://www.iconninja.com/files/268/699/635/instagram-icon.png)](https://www.instagram.com/marianarmarques_/)
+[![](https://cdn4.iconfinder.com/data/icons/social-media-2146/512/25_social-256.png)](https://www.instagram.com/marianarmarques_/)
 
 
 
