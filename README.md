@@ -1,5 +1,6 @@
 ### Hi, I'm Mariana Marques 👋
-
+So I want to talk to you guys about me. I'm portuguese and from Braga, currently studying at Universidade do Minho. 
+I'm becoming a informatic engineer (2nd year of graduation).
 <!--
 **marianarmarques/marianarmarques** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
