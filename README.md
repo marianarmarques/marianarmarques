@@ -3,7 +3,7 @@ So I want to talk to you guys about me. I'm portuguese and from Braga, currently
 I'm becoming a **informatic software engineer** (2nd year of graduation).
 
 ## Connect with me:
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.iconfinder.com%2Ficons%2F1161954%2Finstagram_icon&psig=AOvVaw2PInZbiCV63FDJUhg1r7jn&ust=1611504640176000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCNCk1t64su4CFQAAAAAdAAAAABAD)
+![](https://cdn4.iconfinder.com/data/icons/picons-social/57/38-instagram-3-512.png)
 
 
 
