@@ -6,7 +6,7 @@ I'm becoming a **informatic software engineer** (2nd year of graduation) and sta
 
 [![](https://cdn4.iconfinder.com/data/icons/social-media-2146/512/25_social-64.png)](https://www.instagram.com/marianarmarques_/)
 
-Or you can add me on Discord: marianarmarques#8663.
+Or you can add me on Discord: *marianarmarques#8663* ✨
 
 
 
